@@ -1,1 +1,1 @@
-# kurabudiary
+##https://www.baidu.com
